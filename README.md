@@ -1,1 +1,0 @@
-# Norway-Digital-Twin-in-Healthcare-Market
